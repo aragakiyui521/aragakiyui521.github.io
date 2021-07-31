@@ -23,6 +23,6 @@
 待红衣背篓归来日，还图样。
 
 https://payment.tw.playblackdesert.com/Pay/Home/
-
+https://account.tw.playblackdesert.com/Member/Login?_returnUrl=https%3a%2f%2fwww.tw.playblackdesert.com%2fMyPage%2fOtp%2f
 
 
