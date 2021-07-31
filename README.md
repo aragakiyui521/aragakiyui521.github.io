@@ -22,7 +22,7 @@
 
 待红衣背篓归来日，还图样。
 
-
+https://account.tw.playblackdesert.com/Member/Login?_returnUrl=
 
 
 
